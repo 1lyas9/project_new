@@ -1,1 +1,1 @@
-"#Noviy" 
+"NOVIY NOVIY" 
